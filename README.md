@@ -1,0 +1,2 @@
+# Problem-Identification
+Understands how to predict the emergence of future, business-relevant (or project relevant) issues and develop solutions to solve them, including projecting the consequences and potential impact of doing one thing over another, or of doing nothing at all.  Is able to predict Understands how to predict the emergence of future, business-relevant (or project relevant) issues and develop solutions to solve them, including projecting the consequences and potential impact of doing one thing over another, or of doing nothing at all.
